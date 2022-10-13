@@ -1,0 +1,2 @@
+# KENDYVPN_V2.0
+KENDY VPN V.20 By KendyOfficial
